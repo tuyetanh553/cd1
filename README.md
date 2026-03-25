@@ -5,6 +5,6 @@
 ### Thành viên:
 
 1. Nguyễn Thành Trung
-2. Vương Thị Ánh Tuyét
+2. Vương Thị Ánh Tuyết
 3. Thái Hồng Quân
 
